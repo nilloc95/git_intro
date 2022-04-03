@@ -1,1 +1,2 @@
 Collin Gilmore
+gilmorco@oregonstate.edu
